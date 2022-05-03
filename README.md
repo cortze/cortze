@@ -1,4 +1,4 @@
-### Welcome to my github profile :dromedary_camel:! 
+### Welcome :dromedary_camel:! 
 
 
 <!--
